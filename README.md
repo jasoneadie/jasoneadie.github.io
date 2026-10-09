@@ -1,1 +1,1 @@
-# shopify-freelance-funnel
+# jasoneadie.github.io
